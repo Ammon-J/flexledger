@@ -1,3 +1,0 @@
-Using AI has really helped me complete a task that would normally take a long time. Another thing is that I did not think about every part of
-the requirements for my loggin feature. I would not have thought about it without the help of ai. I was also able to focus on the bigger picture of the feature instead of the small parts that can differ your thought process. AI has become a very useful companion to do big things. 
-Many choose not to use ai which I think they are missing out. I am still using my critical thinking and using my creativety. AI is helping me put my idea into something real.
